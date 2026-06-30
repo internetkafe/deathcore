@@ -13,7 +13,6 @@
 </p>
 
 
-https://t.me/inetkafe
 
 
 ---
